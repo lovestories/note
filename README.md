@@ -100,6 +100,6 @@
 
 #### 2016-2-16
 
-Finally, i realize the reality.
+Finally, i accept this fact.
 
 ***
